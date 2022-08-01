@@ -1,1 +1,1 @@
-Hey I'm Imisi a gamer and software developer looking for some exprience in Game Design/ Development :D 
+Hi I am a freelance 3D artist and game developer currently developing a Dantes Inferno Inspired Metroidvania as well as some smaller 1 off programs. Please dont hesitate to to contact me at imisi.olubummo@gmail.com if you have any questions or if you just want a chat.
